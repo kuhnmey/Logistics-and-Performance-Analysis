@@ -44,4 +44,4 @@ This project analyzes logistics operations to uncover the drivers of high transp
 ## Contact
 For feedback or collaboration opportunities:  
 📧 Email: [bamigbadedebby01@gmail.com]  
-🔗 LinkedIn: [deborah bamigbade]
+🔗 LinkedIn: [www.linkedin.com/in/deborah-bamigbade-75596323a]
